@@ -5,7 +5,3 @@
 
 улицы несут в себе боль и разочарование 
 минуты страха, минуты отчаяния 
-
-When the saints are going wild
-
-some content
